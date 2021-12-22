@@ -1,1 +1,1 @@
-# template2‚ðŽg—p
+# template2ã‚’ä½¿ç”¨
